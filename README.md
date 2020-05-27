@@ -1,2 +1,2 @@
-# Bienvenidos a tiendasdesanantoniodeprado.github.io
+tiendasdesanantoniodeprado
 
